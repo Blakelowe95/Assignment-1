@@ -22,6 +22,7 @@ Frankly, I expect to be set up for my career during my studies. To elaborate, I 
 
 ## **Ideal Job**
 ![Image](src)
+![Image](/Users/blakelowe/Desktop/Screen Shot 2019-12-04 at 11.35.39.png)
 
 
 
