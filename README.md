@@ -21,8 +21,10 @@ Frankly, I expect to be set up for my career during my studies. To elaborate, I 
 
 
 ## **Ideal Job**
+###**Financial Analyst**
+
 (https://www.seek.com.au/job/40462037?searchrequesttoken=4d3e4df9-bdd7-4200-98e5-ca234b3fd425&type=standard)
-https://github.com/Blakelowe95/Assigntment---1/blob/master/Screen%20Shot%202019-12-04%20at%2011.35.39.png?raw=true
+(https://github.com/Blakelowe95/Assigntment---1/blob/master/Screen%20Shot%202019-12-04%20at%2011.35.39.png?raw=true)
 
 
 
