@@ -1,7 +1,7 @@
 # Blake Lowe
 
-1323811
-S3813416@student.rmit.edu.au
+**Student Number:** 1323811
+**Email:** S3813416@student.rmit.edu.au
 
 ## **Back Ground**
 As you may have guessed my name is Blake. I'm 24 years old and currently in my first year of a financial planning undergraduate.
