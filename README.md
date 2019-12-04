@@ -23,9 +23,16 @@ Frankly, I expect to be set up for my career during my studies. To elaborate, I 
 ## **Ideal Job**
 ### **Financial Analyst**
 
-[www.Seek.com.au/FinancialAnalyst](https://www.seek.com.au/job/40462037?searchrequesttoken=4d3e4df9-bdd7-4200-98e5-ca234b3fd425&type=standard).
+[www.Seek.com.au/FinancialAnalyst](https://www.seek.com.au/job/40462037?searchrequesttoken=4d3e4df9-bdd7-4200-98e5-ca234b3fd425&type=standard)
 
 [Advertisment](https://github.com/Blakelowe95/Assigntment---1/blob/master/Screen%20Shot%202019-12-04%20at%2011.35.39.png?raw=true)
+
+The job shown above is one of many adverstisements on Seek.com that stand out to me. It was very hard to narrow my preferences down. This job would be an around about estimate of what I'd love to do. To work in a team producing answers to complex problems for the best interest of our business partners and clients. Most of all, the job is based mostly on statistical inferences. I would personally rather work with data and produce answers that are based on facts. 
+
+The most important prerequisites for the job is 3-5 years of strong experience alongside various qualifications including an undergraduate in financial planning and CPA or CA certifications. Following that they ask for someone who is proficient with excell and other programs. The also ask for someone who has excellent communication skills as the job may require presentations to people from 'various backgrounds'.
+
+At the moment, I'm far from eligable from obtaining this job. I have very little to offer the employers others than strong authentic communication skills that I've obtained from a history of working in consultation roles. 
+Through the course of my degree I hope to obtain all of the neccesary skills required for a job of this caliber. Which I am confident it will do so. The only thing that my degree won't be able to offer me is years of experience in a similar role. I will get a job in a similar role potentially has a paraplanner or an associate analyst as soon as I finish my degree. 
 
 
 
