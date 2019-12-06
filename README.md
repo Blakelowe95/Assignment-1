@@ -56,7 +56,15 @@ Through the course of my degree I hope to obtain all of the neccesary skills req
 Upon reflection of the results above I have obtained many insights about myself that seem to be uncanny and enlightening. What stands out in my mind is that there are three main attributes that I hold. I'm clearly an introvert, very concientious and on the sensitive side. The first of which i'm not suprised about at all. Although, the second and third gave me interesting insights on who I am and who I can be. In the interest of joining a team it's apparent to me that I may need to expend a bit more energy on maintaining open, positive lines of communication with my team mates. Whilst holding a somewhat hard shell to any critism that may come my way. I believe with the three main attributes mentioned and the many more shown in my results above I will be a productive team-mate that will be willing to help anyone in need with the tasks at hand.
 
 
-
+**Overview (100 words) - This should be a summary of what the project will be.
+Motivation (100) words) - This should be a description of why the project will be interesting or useful. This may include statistics or other evidence, such as: "There service. are 1.5 billion cat owners in Australia, and so there is a huge market for an automated cat feeder. Using Raspberry Pi technology is a cheap and easily assembled solution to this problem."
+Description 
+(500 words) - Detailed description of the features of the product or service
+Tools and Technologies
+(100) words) - Describe the software, hardware and/or er equipment needed. Include any relevant open source tools as appropriateSkills Required
+(100 words) - List the skills are required for your project, including software that needs to be written, and special hardware (if any). How feasible will it be to find the skills, software and hardware required?
+Outcome 
+(100 words) - If the project is successful, what will be the outcome? How will the original problem be solved? What impact will this development have?**
 
 ## Blake Lowe
 
