@@ -1,5 +1,5 @@
 # Blake Lowe
-
+![Me :)](https://github.com/Blakelowe95/Assignment-1/blob/master/16174950_114612692382322_6549005153495816174_n.jpg?raw=true)
 **Student Number:** 1323811
 **Email:** S3813416@student.rmit.edu.au
 
@@ -25,7 +25,7 @@ Frankly, I expect to be set up for my career during my studies. To elaborate, I 
 
 [www.Seek.com.au/FinancialAnalyst](https://www.seek.com.au/job/40462037?searchrequesttoken=4d3e4df9-bdd7-4200-98e5-ca234b3fd425&type=standard)
 
-[Advertisment](https://github.com/Blakelowe95/Assigntment---1/blob/master/Screen%20Shot%202019-12-04%20at%2011.35.39.png?raw=true)
+![Advertisment](https://github.com/Blakelowe95/Assigntment---1/blob/master/Screen%20Shot%202019-12-04%20at%2011.35.39.png?raw=true)
 
 The job shown above is one of many adverstisements on Seek.com that stand out to me. It was very hard to narrow my preferences down. This job would be an around about estimate of what I'd love to do. To work in a team producing answers to complex problems for the best interest of our business partners and clients. Most of all, the job is based mostly on statistical inferences. I would personally rather work with data and produce answers that are based on facts. 
 
@@ -40,19 +40,19 @@ Through the course of my degree I hope to obtain all of the neccesary skills req
 
 [Myers-Brigs Type Indicator](https://www.16personalities.com/infj-personality)
 
-[Results](https://github.com/Blakelowe95/Assignment-1/blob/master/Screen%20Shot%202019-12-06%20at%2013.29.46.png?raw=true)
+![Results](https://github.com/Blakelowe95/Assignment-1/blob/master/Screen%20Shot%202019-12-06%20at%2013.29.46.png?raw=true)
 
 **2.**
 
 [Learning Styles Test](http://www.emtrain.eu/learning-styles/)
 
-[Results](https://github.com/Blakelowe95/Assignment-1/blob/master/Screen%20Shot%202019-12-06%20at%2013.34.20.png?raw=true)
+![Results](https://github.com/Blakelowe95/Assignment-1/blob/master/Screen%20Shot%202019-12-06%20at%2013.34.20.png?raw=true)
 
 **3.**
 
 [Big Five Factors Test](https://openpsychometrics.org)
 
-[Results](https://github.com/Blakelowe95/Assignment-1/blob/master/Screen%20Shot%202019-12-06%20at%2013.40.58.png?raw=true)
+![Results](https://github.com/Blakelowe95/Assignment-1/blob/master/Screen%20Shot%202019-12-06%20at%2013.40.58.png?raw=true)
 
 ### **Thoughts**
 
