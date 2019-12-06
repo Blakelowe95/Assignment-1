@@ -35,10 +35,12 @@ At the moment, I'm far from eligable from obtaining this job. I have very little
 Through the course of my degree I hope to obtain all of the neccesary skills required for a job of this caliber. Which I am confident it will do so. The only thing that my degree won't be able to offer me is years of experience in a similar role. I will get a job in a similar role potentially has a paraplanner or an associate analyst as soon as I finish my degree. 
 
 ## **Personal Profile**
-### **Personality/Psychometric and Learning Stylr Test Results**
+### **Personality/Psychometric and Learning Style Test Results**
 **1.**
 [Myers-Brigs Type Indicator](https://www.16personalities.com/infj-personality)
-[Results](
+[Results](https://github.com/Blakelowe95/Assignment-1/blob/master/Screen%20Shot%202019-12-06%20at%2013.29.46.png?raw=true)
+
+**2.**
 
 
 
