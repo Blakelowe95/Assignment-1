@@ -38,6 +38,7 @@ Through the course of my degree I hope to obtain all of the neccesary skills req
 ### **Personality/Psychometric and Learning Style Test Results**
 **1.**
 [Myers-Brigs Type Indicator](https://www.16personalities.com/infj-personality)
+
 [Results](https://github.com/Blakelowe95/Assignment-1/blob/master/Screen%20Shot%202019-12-06%20at%2013.29.46.png?raw=true)
 
 **2.**
