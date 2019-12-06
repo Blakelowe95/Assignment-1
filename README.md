@@ -2,7 +2,7 @@
 **Student Number:** 1323811
 **Email:** S3813416@student.rmit.edu.au
 
-## **Back Ground**
+## **A Little Bit About Me**
 As you may have guessed my name is Blake. I'm 24 years old and currently in my first year of a financial planning undergraduate.
 I was born and raised in the Sunshine Coast, Queensland. The Sunshine Coast is a lot like it sounds, a very surf-centric community. When I was 20 i decided to move to Melbourne and persue tattooing as it had been my life long goal. I eventually made the decision to drop tattooing in favour of getting an education. This is with the hope that one day i'll have a job that I can do my best to help other people rather than quite literally hurting them. 
 
@@ -31,8 +31,7 @@ The most important prerequisites for the job is 3-5 years of strong experience a
 At the moment, I'm far from eligable from obtaining this job. I have very little to offer the employers others than strong authentic communication skills that I've obtained from a history of working in consultation roles. 
 Through the course of my degree I hope to obtain all of the neccesary skills required for a job of this caliber. Which I am confident it will do so. The only thing that my degree won't be able to offer me is years of experience in a similar role. I will get a job in a similar role potentially has a paraplanner or an associate analyst as soon as I finish my degree. 
 
-## **Personal Profile**
-### **Personality/Psychometric and Learning Style Test Results**
+## **Personality/Psychometric and Learning Style Tests**
 **1.**
 
 [Myers-Brigs Type Indicator](https://www.16personalities.com/infj-personality)
@@ -51,7 +50,7 @@ Through the course of my degree I hope to obtain all of the neccesary skills req
 
 ![Results](https://github.com/Blakelowe95/Assignment-1/blob/master/Screen%20Shot%202019-12-06%20at%2013.40.58.png?raw=true)
 
-### **Thoughts**
+### **Thoughts and Relflections**
 Upon reflection of the results above I have obtained many insights about myself that seem to be uncanny and enlightening. What stands out in my mind is that there are three main attributes that I hold. I'm clearly an introvert, very concientious and on the sensitive side. The first of which i'm not suprised about at all. Although, the second and third gave me interesting insights on who I am and who I can be. In the interest of joining a team it's apparent to me that I may need to expend a bit more energy on maintaining open, positive lines of communication with my team mates. Whilst holding a somewhat hard shell to any critism that may come my way. I believe with the three main attributes mentioned and the many more shown in my results above I will be a productive team-mate that will be willing to help anyone in need with the tasks at hand.
 
 
