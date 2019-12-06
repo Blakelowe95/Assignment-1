@@ -1,4 +1,3 @@
-# Blake Lowe
 ![Me :)](https://github.com/Blakelowe95/Assignment-1/blob/master/16174950_114612692382322_6549005153495816174_n.jpg?raw=true)
 **Student Number:** 1323811
 **Email:** S3813416@student.rmit.edu.au
