@@ -21,11 +21,9 @@ Frankly, I expect to be set up for my career during my studies. To elaborate, I 
 
 
 ## **Ideal Job**
-### **Financial Analyst**
-
-[www.Seek.com.au/FinancialAnalyst](https://www.seek.com.au/job/40462037?searchrequesttoken=4d3e4df9-bdd7-4200-98e5-ca234b3fd425&type=standard)
 
 ![Advertisment](https://github.com/Blakelowe95/Assigntment---1/blob/master/Screen%20Shot%202019-12-04%20at%2011.35.39.png?raw=true)
+[www.Seek.com.au/FinancialAnalyst](https://www.seek.com.au/job/40462037?searchrequesttoken=4d3e4df9-bdd7-4200-98e5-ca234b3fd425&type=standard)
 
 The job shown above is one of many adverstisements on Seek.com that stand out to me. It was very hard to narrow my preferences down. This job would be an around about estimate of what I'd love to do. To work in a team producing answers to complex problems for the best interest of our business partners and clients. Most of all, the job is based mostly on statistical inferences. I would personally rather work with data and produce answers that are based on facts. 
 
@@ -55,6 +53,8 @@ Through the course of my degree I hope to obtain all of the neccesary skills req
 ![Results](https://github.com/Blakelowe95/Assignment-1/blob/master/Screen%20Shot%202019-12-06%20at%2013.40.58.png?raw=true)
 
 ### **Thoughts**
+Upon reflection of the results above I have obtained many insights about myself that seem to be uncanny and enlightening. What stands out in my mind is that there are three main attributes that I hold. I'm clearly an introvert, very concientious and on the sensitive side. The first of which i'm not suprised about at all. Although, the second and third gave me interesting insights on who I am and who I can be. In the interest of joining a team it's apparent to me that I made need to expend a bit more energy on maintaining open, positive lines of communication with my team mates. Whilst holding a somewhat hard shell to any critism that may come my way. I believe with the three main attributes mentioned and the many more shown in my results above I will be a productive teammate that will be willing to help anyone in need with the tasks at hand.
+
 
 
 
